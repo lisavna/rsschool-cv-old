@@ -1,2 +1,2 @@
 #Karina #CV
-hello
+hello, my name is Karina
